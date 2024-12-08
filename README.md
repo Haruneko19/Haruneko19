@@ -5,7 +5,7 @@
 
 Coding and software development 🖥️
 Bridging IT and business for innovative solutions 🌐
-Basketball and teamwork both on and off the court 🏀
+Video Games and teamwork both on and off on the gaming 
 🌱 Currently Exploring:
 
 Mobile app development
